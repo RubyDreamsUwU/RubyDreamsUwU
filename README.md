@@ -1,4 +1,3 @@
-# RubyDreams-Bio
 ### **IF YOU'RE SEEING THIS, YOU SAW ME ON PONYTOWN!! HI!!**<br/>
 I'm Ruby, i'm a 20 year old guy, and i use he/it pronouns. As i'm writing this, i'm currently into ***Limbus Company***.<br/>
 ---<br/>
