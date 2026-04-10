@@ -5,10 +5,10 @@ I'm Ruby, i'm a 20 year old guy, and i use he/it pronouns. As i'm writing this, 
 I have these guys irl<br/>
 ![promotional image of one of the official sinclair plushes](2025_Merch_Sinclair_Nui_Plush.png) ![promotional image of one of the official hong lu plushes](2025_Merch_Hong_Lu_Nui_Plush.png)<br/><br/>
 Some of my gifs<br/><br/>
-![sniper yaoi](https://media1.tenor.com/m/4leA-n3C824AAAAd/hongcliff-hong-cliff.gif)<br/>
-![proelium fatale](https://media1.tenor.com/m/sjC_kZIhaQsAAAAd/limbus-company.gif)<br/>
-![manager don with qoh facade using her skill 3](fake_qoh_don_sancho_kill_beam.gif)<br/>
-![happy past ish crossfades into sad present day ish](ishmael_sad_crossfade_reaction_image.gif)<br/>
-![picmix about dante](picmix.com_13203994.gif)<br/>
-![picmix about fullstop office hongcliff](picmix.com_13235234.gif)<br/>
-![hong lu's battle sprite slides into frame with a flower effect](hong_lu_flowery_slide_in.gif)<br/>
+![sniper yaoi](https://media1.tenor.com/m/4leA-n3C824AAAAd/hongcliff-hong-cliff.gif)
+![proelium fatale](https://media1.tenor.com/m/sjC_kZIhaQsAAAAd/limbus-company.gif)
+![manager don with qoh facade using her skill 3](fake_qoh_don_sancho_kill_beam.gif)
+![happy past ish crossfades into sad present day ish](ishmael_sad_crossfade_reaction_image.gif)
+![picmix about dante](picmix.com_13203994.gif)
+![picmix about fullstop office hongcliff](picmix.com_13235234.gif)
+![hong lu's battle sprite slides into frame with a flower effect](hong_lu_flowery_slide_in.gif)
