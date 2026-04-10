@@ -11,8 +11,8 @@ I have these guys irl
 <br/><br/>
 ![sniper yaoi](https://media1.tenor.com/m/4leA-n3C824AAAAd/hongcliff-hong-cliff.gif)<br/>
 ![proelium fatale](https://media1.tenor.com/m/sjC_kZIhaQsAAAAd/limbus-company.gif)<br/>
-![manager don with qoh facade using her skill 3](fake qoh don sancho kill beam.gif)<br/>
-![happy past ish crossfades into sad present day ish](ishmael sad crossfade reaction image.gif)<br/>
+![manager don with qoh facade using her skill 3](fake_qoh_don_sancho_kill_beam.gif)<br/>
+![happy past ish crossfades into sad present day ish](ishmael_sad_crossfade_reaction_image.gif)<br/>
 ![picmix about dante](picmix.com_13203994.gif)<br/>
 ![picmix about fullstop office hongcliff](picmix.com_13235234.gif)<br/>
 <br/>
