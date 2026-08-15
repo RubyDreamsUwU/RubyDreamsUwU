@@ -2,6 +2,7 @@
 ### **IF YOU'RE SEEING THIS, YOU (probably) SAW ME ON PONYTOWN!! HI!!**<br/>
 I'm Ruby, i'm a 20 year old guy, and i use he/it pronouns. As i'm writing this, i'm currently into ***Limbus Company***.<br/>
 PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send me little drawings and learn more about me<br/>
+![dni graphic that reads "go away/forsaken fans please do not interact or come anywhere near me i'm never coming back to that and seeing it deeply upsets me"](dni_ponytown_graphic.png)<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
 ![shimeji preview](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/blob/main/shime1.png)<br/>
 ![limbus ego resource divider](sin_affinity_web_divider_animation.gif)<br/>
