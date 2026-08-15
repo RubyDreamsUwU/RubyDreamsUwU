@@ -8,6 +8,8 @@ PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send 
 I'm currently working on a hong lu x heathcliff duo shimeji<br/>
 ![affordance animation preview](affordance_preview.gif)<br/>
 ### **[MY COMMISSIONS ARE OPEN](https://rubydreamsuwucommissions.straw.page/)**<br/>
+Most recent example:<br/>
+![art](trussed_im_gyeong-eop.png)<br/>
 ![limbus ego resource divider](sin_affinity_web_divider_animation.gif)<br/>
 Some of my gifs<br/><br/>
 ![manager don with qoh facade using her skill 3](fake_qoh_don_sancho_kill_beam.gif)
