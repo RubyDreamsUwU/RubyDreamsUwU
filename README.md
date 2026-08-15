@@ -1,8 +1,7 @@
 ![limbus ego resource divider](sin_affinity_web_divider_animation.gif)<br/>
 ### **IF YOU'RE SEEING THIS, YOU (probably) SAW ME ON PONYTOWN!! HI!!**<br/>
 I'm Ruby, i'm a 20 year old guy, and i use he/it pronouns. As i'm writing this, i'm currently into ***Limbus Company***.<br/>
-### **PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send me little drawings and learn more about me**<br/>
-![Playtime 39d 6h 56m](https://i.postimg.cc/gkbnTd9Q/Screenshot-2026-04-09-at-21-30-49-Pony-Town.png)<br/>
+PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send me little drawings and learn more about me<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
 ![shimeji preview](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/blob/main/shime1.png)<br/>
 ![limbus ego resource divider](sin_affinity_web_divider_animation.gif)<br/>
