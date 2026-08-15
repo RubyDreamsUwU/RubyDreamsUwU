@@ -5,6 +5,8 @@ PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send 
 ![dni graphic that reads "go away/forsaken fans please do not interact or come anywhere near me i'm never coming back to that and seeing it deeply upsets me"](dni_ponytown_graphic.png)<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
 ![shimeji preview](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/blob/main/shime1.png)<br/>
+I'm currently working on a hong lu x heathcliff duo shimeji<br/>
+![affordance animation preview](affordance_preview.gif)<br/>
 ### **[MY COMMISSIONS ARE OPEN](https://rubydreamsuwucommissions.straw.page/)**<br/>
 ![limbus ego resource divider](sin_affinity_web_divider_animation.gif)<br/>
 Some of my gifs<br/><br/>
