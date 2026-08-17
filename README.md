@@ -6,7 +6,7 @@ Sign my [atabook](https://rubydreamsuwu.atabook.org/)<br/>
 ![dni graphic that reads "go away/forsaken fans please do not interact or come anywhere near me i'm never coming back to that and seeing it deeply upsets me"](dni_ponytown_graphic.png)<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
 ![shimeji preview](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/blob/main/shime1.png)<br/>
-I'm currently working on a hong lu x heathcliff duo shimeji<br/>
+### **[I also made a hong lu x heathcliff duo shimeji](https://github.com/RubyDreamsUwU/Hongcliff-duo-shimeji/tree/main)**<br/>
 ![affordance animation preview](affordance_preview.gif)<br/>
 ### **[MY COMMISSIONS ARE OPEN](https://rubydreamsuwucommissions.straw.page/)**<br/>
 Most recent example:<br/>
