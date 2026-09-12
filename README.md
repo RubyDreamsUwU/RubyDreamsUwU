@@ -5,6 +5,7 @@ PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send 
 Sign my [atabook](https://rubydreamsuwu.atabook.org/)<br/>
 ### i dont really respond to crowns i'm sorry i do see them<br/>
 ![dni graphic that reads "go away/forsaken fans please do not interact or come anywhere near me i'm never coming back to that and seeing it deeply upsets me"](dni_ponytown_graphic.png)<br/>
+![hong lu as one of those old deviantart cat lick animation bases](hong_lu_cat_lick_250x.gif)<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
 ![shimeji preview](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/blob/main/shime1.png)<br/>
 ### **[I also made a hong lu x heathcliff duo shimeji](https://github.com/RubyDreamsUwU/Hongcliff-duo-shimeji/tree/main)**<br/>
