@@ -4,6 +4,7 @@ I'm Ruby, i'm a 20 year old guy, and i use he/it pronouns. As i'm writing this, 
 PLEASE GO CHECK OUT MY [STRAWPAGE!!](https://rubydreamsuwu.straw.page/) go send me little drawings and learn more about me<br/>
 Sign my [atabook](https://rubydreamsuwu.atabook.org/)<br/>
 ### i dont really respond to crowns i'm sorry i do see them<br/>
+### i generally play on 18+ (its more comfortable there, theres less people and they have more chill) but sometimes my friends play on safe so i follow them there. i dont like interacting with minors though so unless i already know you, i recommend avoiding me on safe<br/>
 ![dni graphic that reads "go away/forsaken fans please do not interact or come anywhere near me i'm never coming back to that and seeing it deeply upsets me"](dni_ponytown_graphic.png)<br/>
 ![hong lu as one of those old deviantart cat lick animation bases](hong_lu_cat_lick_250x.gif)<br/>
 ### **[I MADE A SHIMEJI OF EZRA USING BATTLE SPRITES!](https://github.com/RubyDreamsUwU/Ezra-battle-sprite-shimeji/tree/main)**<br/>
